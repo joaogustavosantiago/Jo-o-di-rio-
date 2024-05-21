@@ -13,3 +13,4 @@ hoje eu terminei o quizizs e terminei um dos cursos da alura
 
 29/11/2023
 no dia de hoje eu aproveitei para continuar o curso da alura 
+dia 21\05 
